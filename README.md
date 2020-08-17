@@ -1,2 +1,2 @@
 # Eventos
-![foto oficial autora](https://github.com/libromecanico/Eventos/blob/master/Foto%20oficial%20autora.jpg)
+![foto](https://twitter.com/libromecanico/status/1118541773071056896?s=20)
